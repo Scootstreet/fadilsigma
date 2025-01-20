@@ -1,2 +1,1 @@
 # fadilsigma
-dah on ni
